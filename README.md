@@ -1,5 +1,5 @@
 Hello, I am Nana👋
-Aspiring Software Developer and Cybersecurity analyst | Technology Enthusiast
+Aspiring Software Developer and Cybersecurity learner | Technology Enthusiast
 
 I am currently studying Digital skills at Newham College and building my foundations in technology.
 
